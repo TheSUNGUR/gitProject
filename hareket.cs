@@ -1,0 +1,1 @@
+hareket kodları yazıldı
