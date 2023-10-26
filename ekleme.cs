@@ -1,0 +1,1 @@
+oluşturulan görseller projeye eklendi
